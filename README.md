@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **samaradityaph@gmail.com**
 
-- 📄 Know about my experiences [linkedin.com/samaradityaph]([https://linkedin.com/samaradityaph]https://www.linkedin.com/in/samaraditya-ph-07632620a/)
+- 📄 Know about my experiences [linkedin.com/samaradityaph](https://linkedin.com/samaradityaph]https://www.linkedin.com/in/samaraditya-ph-07632620a/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
